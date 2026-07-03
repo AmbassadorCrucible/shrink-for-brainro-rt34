@@ -1,4 +1,4 @@
-
+top Scripts for shrink for brainrots offers the most advanced shrink for brainrots Script, with no cooldown and esp. Perfect for dominating any match.
 
 
 
